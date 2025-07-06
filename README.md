@@ -1,3 +1,5 @@
+Not my main gh.  See Thrive25 for projects.
+
 At the intersection of product + engineering + sales
 - 📫 How to find me:
   - 📧 mail@joshkorn.io
